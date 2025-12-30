@@ -1,2 +1,2 @@
 <p align = middle> <img width="570" height="438" alt="lol" src="https://github.com/user-attachments/assets/0c1701fd-892f-4853-8e5b-1a7c388b2f5d" />
-<p align = middle> <https://github.com/user-attachments/assets/7ec1eedc-33f9-4c72-8947-d1843e905eaa>
+<p align = middle> <img https://github.com/user-attachments/assets/7ec1eedc-33f9-4c72-8947-d1843e905eaa>
