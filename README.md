@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=maythecoldnesscorruptme&color=1F4B4B" alt="Profile Views"/>
+  <img src="https://komarev.com/ghpvc/?username=maythecoldnesscorruptme&color=1F4B4B&label=Visitors" alt="Visitors"/>
 </p>
 
 <img width= "1000" height="133" alt="ttts" src="https://github.com/user-attachments/assets/0ec83bec-0724-462c-8ce5-1c707c9f5a6e" />
