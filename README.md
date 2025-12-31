@@ -3,7 +3,7 @@
 </p>
 
 <img width= "1000" height="133" alt="ttts" src="https://github.com/user-attachments/assets/0ec83bec-0724-462c-8ce5-1c707c9f5a6e" />
-yes happy  -sorbetflake
+yes happy i help u w this ok happy - sorbetflake
 <p align = middle> <img width="570" height="438" alt="lol" src="https://github.com/user-attachments/assets/0c1701fd-892f-4853-8e5b-1a7c388b2f5d" />
 <p align = middle> <i> " I want things to be <ins> <b> beautiful . </b> </ins> " </i> <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/048bc4b8-6ff8-4e87-99fb-daa0b9b40b6a" <img width="1422" height="233" alt="gd" src="https://github.com/user-attachments/assets/5ef41025-2928-47c2-bb3d-656c54fbb35c" />
   <p align = middle> <i>  <b>  <ins>  15  </ins>  </b>  ⋆⁺₊❅. <ins> 10/01 </ins> </i>
