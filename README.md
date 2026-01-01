@@ -2,7 +2,11 @@
   <img src="https://komarev.com/ghpvc/?username=maythecoldnesscorruptme&color=1F4B4B&label=visitors" alt="visitors"/>
 </p>
 <img width= "1000" height="133" alt="ttts" src="https://github.com/user-attachments/assets/0ec83bec-0724-462c-8ce5-1c707c9f5a6e" />
+<p align="right">
+  <img src="https://files.catbox.moe/whbkqx.png" alt="maythecoldnesscorruptme" width="300" height="300"/>
 <p align = middle> <img width="570" height="438" alt="lol" src="https://github.com/user-attachments/assets/0c1701fd-892f-4853-8e5b-1a7c388b2f5d" />
+  <p align="left">
+  <img src="https://files.catbox.moe/7qmyeg.png" alt="maythecoldnesscorruptme" width="300" height="300" />
 <p align = middle> <i> " I want things to be <ins> <b> beautiful . </b> </ins> " </i> <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/048bc4b8-6ff8-4e87-99fb-daa0b9b40b6a" <img width="1422" height="233" alt="gd" src="https://github.com/user-attachments/assets/5ef41025-2928-47c2-bb3d-656c54fbb35c" />
   <p align = middle> <i>  <b>  <ins>  15  </ins>  </b>  ⋆⁺₊❅. <ins> 10/01 </ins> </i>
  <p align = middle> <img width="97" height="93" alt="fd" src="https://github.com/user-attachments/assets/3d7bb218-6908-465c-9376-121f23d3bfee" />
