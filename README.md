@@ -3,8 +3,9 @@
 </p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31vncjyh63bhd26a3acwh2jrrawu&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=40a07b&bar_color_cover=false&mode=dark">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31vncjyh63bhd26a3acwh2jrrawu&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=13634b&bar_color_cover=false">
   </a>
+</p>
 </p>
 <img width= "1000" height="133" alt="ttts" src="https://github.com/user-attachments/assets/0ec83bec-0724-462c-8ce5-1c707c9f5a6e" />
 <p align = middle> <img src="https://files.catbox.moe/7qmyeg.png" alt="maythecoldnesscorruptme" width="200" height="200" /> <img width="570" height="438" alt="lol" src="https://github.com/user-attachments/assets/0c1701fd-892f-4853-8e5b-1a7c388b2f5d" /> <img src="https://files.catbox.moe/whbkqx.png" alt="maythecoldnesscorruptme" width="200" height="200"/>
